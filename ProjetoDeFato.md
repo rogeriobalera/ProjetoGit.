@@ -1,0 +1,8 @@
+Projetinho vai ser desenvolvido aqui
+§ 3o  Tendo os nubentes domicílio diverso, regerá os casos de invalidade do matrimônio a lei do primeiro domicílio conjugal.
+
+§ 4o  O regime de bens, legal ou convencional, obedece à lei do país em que tiverem os nubentes domicílio, e, se este for diverso, a do primeiro domicílio conjugal.
+
+§ 5º - O estrangeiro casado, que se naturalizar brasileiro, pode, mediante expressa anuência de seu cônjuge, requerer ao juiz, no ato de entrega do decreto de naturalização, se apostile ao mesmo a adoção do regime de comunhão parcial de bens, respeitados os direitos de terceiros e dada esta adoção ao competente registro.                         (Redação dada pela Lei nº 6.515, de 1977)
+
+§ 6º  O divórcio realizado no estrangeiro, se um ou ambos os cônjuges forem brasileiros, só será reconhecido no Brasil depois de 1 (um) ano da data da sentença, salvo se houver sido antecedida de separação judicial por igual prazo, caso em que a homologação produzirá efeito imediato, obedecidas as condições estabelecidas para a eficácia das sentenças estrangeiras no país. O Superior Tribunal de Justiça, na forma de seu regimento interno, poderá reexaminar, a requerimento do interessado, decisões já proferidas em pedidos de homologação de sentenças estrangeiras de divórcio de brasileiros, a fim de que passem a produzir todos os efeitos legais.                       (Redação dada pela Lei nº 12.036, de 2009).
